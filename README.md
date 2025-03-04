@@ -41,8 +41,6 @@ What You’ll Get with Each Plan
     
 *   Perfect for freelancers and small teams
 
-![Claim Coupon Code](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon.png)
-
 ### **Guru Plan:**
 
 *   All Pro features, plus content marketing tools
@@ -50,8 +48,6 @@ What You’ll Get with Each Plan
 *   Historical data and extended limits
     
 *   Ideal for growing businesses
-    
-![Claim Coupon Code](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon.png)
 
 ### **Business Plan:**
 
