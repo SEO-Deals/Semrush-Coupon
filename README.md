@@ -1,4 +1,4 @@
-**Semrush Coupon Code 2025- Get 17% Discount [MARCH]**
+**Semrush Coupon Code 2025- Get 17% Discount [APRIL]**
 =======================
 
 Looking for the best **Semrush SEO coupon code?** You’ve come to the right place!
