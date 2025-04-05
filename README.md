@@ -7,7 +7,7 @@ In today’s competitive digital landscape, having the right SEO tools can make 
 
 With exclusive Semrush SEO coupon codes, you can save big on Pro, Guru, and Business plans. Plus, new users can enjoy a **14-day free tria**l to test-drive the platform risk-free. In this guide, I’ll show you how to **grab up to 17% off on Semrush plans** and unlock premium features at a fraction of the cost. Let’s get started!
 
-<a href="https://bit.ly/42kGZ0z"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Get%2017%25%20OFF%20On%20Semrush%20Pro%20Plan.png" alt="Get 17% OFF On Semrush Pro Plan" width="649" height="auto" /> </a>
+<a href="https://bit.ly/42kGZ0z" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Get%2017%25%20OFF%20On%20Semrush%20Pro%20Plan.png" alt="Get 17% OFF On Semrush Pro Plan"/> </a>
 ![Claim Coupon Code](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon.png)
 
 **Top Semrush SEO Discount & Coupons**
