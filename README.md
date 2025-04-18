@@ -18,7 +18,7 @@
 
 <div align="center">
     <a href="https://bit.ly/3E5jDUy" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Get%2014%20Days%20Trial%20On%20Semrush%20Guru%20Plan.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
-</div>
+</div><br>
 
 
 
