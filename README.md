@@ -9,7 +9,7 @@ With exclusive Semrush SEO coupon codes, you can save big on Pro, Guru, and Busi
 
 ***
 <div align="center">
-    <a href="https://bit.ly/42kGZ0z" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Get%2017%20OFF%20on%20Semrush%20Pro%20Plan.png" alt="Get 17% OFF On Semrush Pro Plan"/></a>
+    <a href="https://bit.ly/42kGZ0z" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/17%20OFF%20on%20Semrush%20Pro%20Plan.png" alt="Get 17% OFF On Semrush Pro Plan"/></a>
 </div>
 
 ***
