@@ -1,4 +1,4 @@
-**Semrush Coupon Code 2025- Get 17% Discount [MAY]**
+**Semrush Coupon Code 2025 - Get 17% Discount [MAY]**
 =======================
 
 <div align="center">
@@ -12,12 +12,12 @@
 
 
 <div align="center">
-    <a href="https://bit.ly/3RpkWAR" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Get%2014%20Days%20Trial%20On%20Semrush%20Pro%20Plan.png" alt="Get 14 Days Trial on Semrush Pro Plan"/></a>
+    <a href="https://bit.ly/3RpkWAR" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Semrush%20Pro%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Pro Plan"/></a>
 </div><br>
 
 
 <div align="center">
-    <a href="https://bit.ly/3E5jDUy" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Get%2014%20Days%20Trial%20On%20Semrush%20Guru%20Plan.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
+    <a href="https://bit.ly/3E5jDUy" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
 </div><br>
 
 
@@ -43,7 +43,10 @@ Here are the hottest Semrush deals you don’t want to miss:
      
 *   **Semrush SEO 14-Day Free Trial**New to Semrush? Explore all premium features for 14 days without spending a dime.
 
-![Claim Now](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon.png)
+
+<div align="center">
+    <a href="https://bit.ly/42kGZ0z" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon%20Code.png" alt="Claim Now"/></a>
+</div><br>
 
 These deals are your ticket to accessing world-class SEO tools without breaking the bank.
 
@@ -78,7 +81,9 @@ What You’ll Get with Each Plan
     
 *   Best for large enterprises and agencies
 
-![Claim Coupon Code](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon.png)
+<div align="center">
+    <a href="https://bit.ly/42kGZ0z" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon%20Code.png" alt="Claim Now"/></a>
+</div><br>
 
 
 **How to Claim Your Semrush SEO Coupon**
@@ -86,7 +91,7 @@ What You’ll Get with Each Plan
 
 Claiming your Semrush discount is quick and easy. Here’s a step-by-step guide:
 
-**Step 1:** Go to the [**Semrush pricing page**](https://www.semrush.com/pricing/) and select your plan.
+**Step 1:** Go to the [**Semrush pricing page**](https://bit.ly/42kGZ0z) and select your plan.
 
 ![Pricing Button](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/pricing%20button.png)
 
@@ -227,7 +232,9 @@ Absolutely! Semrush is a powerhouse for anyone serious about SEO. Here’s why:
 
 Whether you’re a beginner or a seasoned pro, Semrush is worth every penny, especially with these discounts!
 
-![claim semrush coupon code](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon.png)
+<div align="center">
+    <a href="https://bit.ly/42kGZ0z" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Semrush%20-%20github/Claim%20Semrush%20Coupon%20Code.png" alt="Claim Now"/></a>
+</div><br>
 
 ### **Final Thoughts: Why You Should Grab the Semrush SEO Discount**
 
