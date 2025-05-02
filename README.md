@@ -29,13 +29,13 @@ With exclusive Semrush SEO coupon codes, you can save big on Pro, Guru, and Busi
 
 Here are the hottest Semrush deals you don’t want to miss:
 
-*   **Semrush Pro Plan: Save 17% on Annual Billing**Get the Pro Plan for just **$ 117.33/Month** (Originally **$139.95**) when you choose annual billing. Perfect for freelancers and Startups!
+*   **Semrush Pro Plan: Save 17% on Annual Billing:** Get the Pro Plan for just **$ 117.33/Month** (Originally **$139.95**) when you choose annual billing. Perfect for freelancers and Startups!
     
-*   **Semrush Guru Plan: 17% Off Annual Subscription** Upgrade to the Guru Plan for **$ 208.33/Month** (Down from **$249.95**) and unlock advanced features like content marketing tools and historical data.
+*   **Semrush Guru Plan: 17% Off Annual Subscription:** Upgrade to the Guru Plan for **$ 208.33/Month** (Down from **$249.95**) and unlock advanced features like content marketing tools and historical data.
     
-*   **Semrush Business Plan: Annual Discount** There is no specific Coupon code, but you can still save 17% by opting for annual billing, reducing the monthly cost to **$416.66** (From **$ 499.95**).
+*   **Semrush Business Plan: Annual Discount:** There is no specific Coupon code, but you can still save 17% by opting for annual billing, reducing the monthly cost to **$416.66** (From **$ 499.95**).
      
-*   **Semrush SEO 14-Day Free Trial**New to Semrush? Explore all premium features for 14 days without spending a dime.
+*   **Semrush SEO 14-Day Free Trial:** New to Semrush? Explore all premium features for 14 days without spending a dime.
 
 
 <div align="center">
