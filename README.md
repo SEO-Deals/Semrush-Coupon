@@ -3,11 +3,11 @@
 With the live and **17% Semrush discount code** on all Semrush annual plans, the Pro plan is now just $117.33/month instead of $139.95. 
 
 <div align="center">
-    <a href="https://semrush.sjv.io/yqWxZv" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
+    <a href="https://bit.ly/3T4mYXH" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
 </div><br>
 
 <div align="center">
-    <a href="https://semrush.sjv.io/XmW544" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Pro%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Pro Plan"/></a>
+    <a href="https://bit.ly/43Wq7iq" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Pro%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Pro Plan"/></a>
 </div><br>
 
 <div align="center">
@@ -47,7 +47,7 @@ Get a full two weeks to test all Semrush features instead of the standard 7-day 
 This gives you ample time to test the platform's capabilities and determine if it's worth the investment.
 
 <div align="center">
-    <a href="https://semrush.sjv.io/yqWxZv" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
+    <a href="https://bit.ly/3T4mYXH" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
 </div><br>
 
 ### 17% Discount on Annual Plans
@@ -136,11 +136,11 @@ Here's a more detailed comparison of all Semrush plans, the features they offer,
 Follow these simple steps to activate your Semrush Free Trial for 14-Days:
 
 <div align="center">
-    <a href="https://semrush.sjv.io/yqWxZv" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
+    <a href="https://bit.ly/3T4mYXH" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
 </div><br>
 
 
-**Step 1:** Visit the official [Semrush 14-day free trial](https://semrush.sjv.io/yqWxZv) page and click on “**Try It Free**”.
+**Step 1:** Visit the official [Semrush 14-day free trial](https://bit.ly/3T4mYXH) page and click on “**Try It Free**”.
 
 <div align="center">
     <a target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semerush%20Free%20Trial.png" alt="Semrush Free Trial"/></a>
@@ -280,11 +280,11 @@ Don't miss the opportunity to claim these Semrush deals **save up to $900 annual
 Claim your discount today and take your SEO strategy to the next level with industry-leading technology and insights.
 
 <div align="center">
-    <a href="https://semrush.sjv.io/yqWxZv" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
+    <a href="https://bit.ly/3T4mYXH" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Guru Plan"/></a>
 </div><br>
 
 <div align="center">
-    <a href="https://semrush.sjv.io/XmW544" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Pro%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Pro Plan"/></a>
+    <a href="https://bit.ly/43Wq7iq" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/main/img/Semrush%20Pro%20Plan%2014%20Days%20Free%20Trial.png" alt="Get 14 Days Trial on Semrush Pro Plan"/></a>
 </div><br>
 
 <div align="center">
