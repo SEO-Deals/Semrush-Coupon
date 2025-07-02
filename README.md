@@ -69,6 +69,9 @@ Here are the current working Semrush discounts and free trials available this mo
   
 </div>
 
+If you're a marketer our GitHub is a great starting point Semrush deals. For those looking for verified and regularly updated offers, the [Official Semrush Deals Partner](https://www.demandsage.com/semrush-coupon/), DemandSage also lists exclusive discounts directly from Semrush. From extended trials to exclusive savings, DemandSage consistently updates verified offers to help marketers save on essential platforms like Semrush.
+
+
 ### 14-Day Free Trial on Semrush Guru Plan
 
 The Guru plan free trial gives growing teams and marketers access to more powerful tools for 14 days, completely free.
