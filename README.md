@@ -27,29 +27,21 @@ Follow these simple steps to activate your Semrush offer and get started without
 ### Step 1: Click the “Claim Offer” button below to open the official Semrush offer page  
 
 <div align="center">
-    <a href="https://bit.ly/3T4mYXH" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/91b3cf4382b2177622a094d65ab30df955b8e133/Img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.jpg" alt="Semrush Guru Plan 14 Days Free Trial"/></a>
+    <a href="https://semrush.sjv.io/YRLkRm" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/91b3cf4382b2177622a094d65ab30df955b8e133/Img/Get%2017%25%20OFF%20On%20Semrush%20All%20Plan.jpg" alt="Get 17% OFF On Semrush All Plan"/></a>
 </div>
-  
 
-### Step 2: At the top, switch to “Annual billing” to apply the 17% discount
+### Step 2: Select your preferred plan and click the “Subscribe” button
 
-![Semrush On Annual Discount](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Img/Semrush%20On%20Annual%20Discount.jpg)
+![Semrush On Annual Discount](https://github.com/SEO-Deals/Semrush-Coupon/blob/f055e1ebabe7c3838097e5d07926270552e8a648/Img/Semrush%20On%20Annual%20Discount.jpg)
 
-
-### Step 3: Pick the plan that fits your needs and hit “Subscribe.”
-
-![Click On Subscribe](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Img/Click%20On%20Subscribe.jpg)
-
-
-### Step 4: Create your Semrush account using your email or Google login
+### Step 3: Sign up for a new Semrush account using your email or Google login
 
 ![Semrush Sign Up](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Img/Semrush%20Sign%20Up.jpg)
 
 
-### Step 5: Add your payment details and finish the sign-up process
+### Step 4: Complete the payment to activate your subscription with the discount applied
 
-![Semrush payment](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Img/Semrush%20payment.jpg)
-
+![Semrush payment](https://github.com/SEO-Deals/Semrush-Coupon/blob/f055e1ebabe7c3838097e5d07926270552e8a648/Img/Semrush%20payment.jpg)
 
 That’s it, your Semrush discount is now active. You’re ready to use all features and start optimizing.
 
@@ -163,16 +155,16 @@ Semrush offers a 14-day free trial on both the Pro and Guru plans, giving new us
 
 Here’s how to start your Semrush free trial in just a few steps:
 
-### Step 1: Pick your preferred trial option from the offers listed below and click the “Claim Offer” button
+### Step 1: Click the “Claim Offer” button below to open the official Semrush Free Trial offer page
 
 <div align="center">
     <a href="https://bit.ly/3T4mYXH" target="_blank"><img src="https://github.com/SEO-Deals/Semrush-Coupon/blob/91b3cf4382b2177622a094d65ab30df955b8e133/Img/Semrush%20Guru%20Plan%2014%20Days%20Free%20Trial.jpg" alt="Semrush Guru Plan 14 Days Free Trial"/></a>
 </div>
 
-### Step 2: Select the plan you want and click on “Try for Free”
+### Step 2: Click on the “TRY IT FREE” button to start your Semrush Free Trial
 
 
-![semrush free trial](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Img/semrush%20free%20trial.jpg)
+![semrush free trial page](https://github.com/SEO-Deals/Semrush-Coupon/blob/f055e1ebabe7c3838097e5d07926270552e8a648/Img/semrush%20free%20trial%20page.jpg)
 
   
 ### Step 3: Sign up for a new Semrush account using your email or Google login
@@ -181,7 +173,7 @@ Here’s how to start your Semrush free trial in just a few steps:
 
 ### Step 4: Enter your payment details to activate the free trial (you won’t be charged during the trial)
 
-![Semrush Free Trial Payment](https://github.com/SEO-Deals/Semrush-Coupon/blob/main/Img/Semrush%20Free%20Trial%20Payment.jpg)
+![Semrush Free Trial Payment](https://github.com/SEO-Deals/Semrush-Coupon/blob/1b091a733a827e3e12d33f9dae93f9c9c38063ad/Img/Semrush%20Free%20Trial%20Payment.jpg)
 
 ## Which Is The Best Semrush Offer Live Right Now?
 
