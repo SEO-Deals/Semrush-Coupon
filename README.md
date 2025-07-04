@@ -41,7 +41,7 @@ Follow these simple steps to activate your Semrush offer and get started without
 
 ### Step 4: Complete the payment to activate your subscription with the discount applied
 
-![Semrush payment](https://github.com/SEO-Deals/Semrush-Coupon/blob/f055e1ebabe7c3838097e5d07926270552e8a648/Img/Semrush%20payment.jpg)
+![Semrush pay](https://github.com/SEO-Deals/Semrush-Coupon/blob/7bc1e3c716715548a12d7fe0f5dc726cd5df1107/Img/Semrush%20pay.jpg)
 
 That’s it, your Semrush discount is now active. You’re ready to use all features and start optimizing.
 
